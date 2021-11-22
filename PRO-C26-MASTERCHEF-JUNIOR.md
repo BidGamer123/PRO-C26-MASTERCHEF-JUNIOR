@@ -1,0 +1,17 @@
+# PRO-C26-MASTERCHEF-JUNIOR
+
+Rasgulla recipe | Bengali rosogulla | How to make sponge rasgulla.
+
+PREP TIME:10 MINUTES
+
+ COOK TIME:30 MINUTES
+ 
+RESTING TIME:1/2 HOUR
+
+ TOTAL TIME:1 HOUR 10 MINUTES
+ SERVINGS:12
+ 
+ COURSE:SWEET
+ 
+ CUISINE:BENGALI
+ 
